@@ -1,6 +1,6 @@
 <h6 align="center">
   
-![](https://cdn.phototourl.com/member/2026-10-25-acd45c7c-8b70-4c7a-8936-de9b2f084fba.png)
+![](https://cdn.phototourl.com/member/2026-10-26-5e0ec7f0-5b22-4848-86e4-0c5044673a04.png)
 
 [atabook](https://dirtycash.atabook.org/)
 <!--
