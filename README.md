@@ -2,7 +2,7 @@
   
 ![](https://cdn.phototourl.com/member/2026-10-26-5e0ec7f0-5b22-4848-86e4-0c5044673a04.png)
 
-[atabook](https://dirtycash.atabook.org/)
+[ᥲ𝗍ᥲᑲ᥆᥆k](https://dirtycash.atabook.org/)
 <!--
 **7oriord/7oriord** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
