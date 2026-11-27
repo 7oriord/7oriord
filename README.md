@@ -1,6 +1,6 @@
 <h6 align="center">
   
-![](https://cdn.phototourl.com/member/2026-10-26-5e0ec7f0-5b22-4848-86e4-0c5044673a04.png)
+![https://rentry.org/sharkittyarts](https://cdn.phototourl.com/member/2026-10-26-5e0ec7f0-5b22-4848-86e4-0c5044673a04.png)
 
 [๑ᥲᥣ᥆rі mᥡ loveꨄ](https://rentry.org/sharkittyarts)
 <!--
